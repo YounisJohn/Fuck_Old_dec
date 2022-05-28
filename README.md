@@ -1,3 +1,1 @@
-# Fuck_Old_dec
-
-#SHANTO_DEC
+# SHANTO-OLDV8_DEC
